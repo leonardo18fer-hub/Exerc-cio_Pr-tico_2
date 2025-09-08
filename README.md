@@ -1,1 +1,0 @@
-# Exerc-cio_Pr-tico_2
